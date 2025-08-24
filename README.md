@@ -1,5 +1,7 @@
 ## ; welcome to one hell of a ride!,,
 
+![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
+
 ---
 
 uh hi im not adding any images, get ready for a yapping session. fast readers pls int /j
