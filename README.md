@@ -23,4 +23,6 @@ uh hi im not adding any images.
 
 dont be shy to tell me of what cosplays to make. im always open to make more cosplays. but please, dont make too many jokes of how many unfinished cosplays i have unless if we are VERY close. i do not have the motivation to finish them.
 
+---
+
 ***until we meet again, my darling.***
