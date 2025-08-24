@@ -1,4 +1,4 @@
-## ; weldome to one hell of a ride!,,
+## ; welcome to one hell of a ride!,,
 
 ---
 
