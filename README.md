@@ -19,13 +19,13 @@ uh hi im not adding any images, get ready for a yapping session. fast readers pl
 
   *cosplay info …*
 
-; usually, i use forsaken, pwned by 14:00, dandys world, dream gam, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. areas to find me are in the fnaf area with friends or in the crowed forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
+; usually, i use forsaken, pwned by 14:00, dandys world, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. areas to find me are in the fnaf area with friends or in the crowed forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
 dont be shy to tell me of what cosplays to make. im always open to make more cosplays. but please, dont make too many jokes of how many unfinished cosplays i have unless if we are VERY close. i do not have the motivation to finish them.
 
 ---
 
-      dni is people over 18, exaggerating proshippers/darkshippers, objectums, MAPs, and basic dni.
+  - dni is people over 18, exaggerating proshippers/darkshippers, objectums, MAPs, and basic dni.
 
 ---
 
