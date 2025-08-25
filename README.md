@@ -9,6 +9,8 @@ uh hi im not adding any images, get ready for a yapping session. fast readers pl
 **info!** 
 - im under 18.
 
+- i have a boyfriwnd,, girlfriend,,, idk what to call them...
+
 - usually semi-verbal if not with friends. possibly not verbal at all if im frustrated, and i do get frustrated VERY easily unless if i know who you are and how you'd act.
   
 - i go idle and offtab a lot. this means i will have a delay in everything, and possibly not reply or move for long periods of time. please give me time to get back on the tab where we were talking.
