@@ -1,4 +1,4 @@
-## ; welcome to one hell of a ride!,,
+## ; all i see is what im supposed to be.
 
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
 
