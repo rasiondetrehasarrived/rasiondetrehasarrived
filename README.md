@@ -29,7 +29,7 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
 ---
 
-  - dni is people over 18, exaggerating proshippers/darkshippers (like when they are so obvious and romanticize like everything), objectums (imm rlly sorry, you guys r nice people! js my past lol)  MAPs, and basic dni.
+  - dni is people over 18, exaggerating proshippers/darkshippers (like when they are so obvious and romanticize like everything), objectums (C+H is fine. dont talk w me tho)  MAPs, and basic dni.
 
 ---
 
