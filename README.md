@@ -31,7 +31,7 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
   - dni is people over 18, exaggerating proshippers/darkshippers (like when they are so obvious and romanticize like everything), MAPs, and basic dni.
 
-; on edge for dni : objectums, dandys world fandom, tadc fandom, and those who are very (i mean VERY) weird minded... (prvrted)
+; on edge for dni : objectums, dandys world fandom, tadc fandom, and those who are very (i mean VERY) weird minded... (prvrted) . all listed are meant to iwec and not get too close with me. i will specify if im fine with you. ^_^
 
 ---
 
