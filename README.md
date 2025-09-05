@@ -19,6 +19,8 @@ uh hi im not adding any images, get ready for a yapping session. fast readers pl
 
 - i may make inappropriate gestures or jokes. if you are not comfortable with that, please always tell me. i can stop those jokes or tone it down. i heavily apologize if i do make you uncomfortable with troll skins, as i dont mean to come off as weird (too much.) i use troll skins when talking to friends only.
 
+- its time i specify since now im usually nonverbal, i kiss cosplays as compliments or praise! i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting!
+
   ---
 
   *cosplay info …*
