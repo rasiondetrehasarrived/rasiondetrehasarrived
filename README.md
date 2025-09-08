@@ -37,4 +37,4 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
 ---
 
-***1-800 theyre so handsome and hot ! ~***
+***1-800 theyre so handsome and hot!~***
