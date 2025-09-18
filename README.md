@@ -19,6 +19,8 @@ uh hi im not adding any images, get ready for a yapping session. fast readers pl
 
 - i may make inappropriate gestures or jokes. if you are not comfortable with that, please always tell me. i can stop those jokes or tone it down. i heavily apologize if i do make you uncomfortable with troll skins, as i dont mean to come off as weird (too much.) i use troll skins when talking to friends only.
 
+- i make many typing mistakes and dont appreciate jokes or actually being corrected about it unless i ask or you are a close firned of mine !
+- 
 heavily directed to pony town,
 - its time i specify since now im usually nonverbal, i kiss cosplays as compliments or praise! i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting!
 
@@ -26,7 +28,7 @@ heavily directed to pony town,
 
   *cosplay info …*
 
-; usually, i use forsaken, pwned by 14:00, dandys world, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. areas to find me are in the fnaf area with friends or in the crowed forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
+; usually, i use forsaken, pwned by 14:00, dandys world, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. areas to find me are in the fnaf area with friends or, usually im in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
 dont be shy to tell me of what cosplays to make. im always open to make more cosplays. but please, dont make too many jokes of how many unfinished cosplays i have unless if we are VERY close. i do not have the motivation to finish them.
 
