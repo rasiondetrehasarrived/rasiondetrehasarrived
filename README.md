@@ -4,7 +4,7 @@
 
 ---
 
-uh hi im not adding any images, get ready for a yapping session. fast readers pls int /j
+uh hi im not adding any images, get ready for a yapping session. 
 
 **info!** 
 - im under 18 and very, very vauge about my age.
