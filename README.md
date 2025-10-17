@@ -40,5 +40,5 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 ; on edge for dni : objectums, dandys world fandom, tadc fandom, and those who are very (i mean VERY) dirty minded . all listed are meant to iwec and not get too close with me. i will specify if im fine with you. ^_^
 
 ---
-
+*1-800 hit my line,*
 ***1-800 theyre so handsome, theyre my hero!***
