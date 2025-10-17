@@ -4,7 +4,7 @@
 
 ---
 
-uh hi im not adding any images, get ready for a yapping session. 
+uh hi im not adding any images, get ready for a yapping session. elephant sfx
 
 **info!** 
 - im under 18 and very, very vauge about my age.
