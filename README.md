@@ -31,6 +31,8 @@ heavily directed to pony town,
 
 ; usually, i use forsaken, pwned by 14:00, dandys world, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. areas to find me are in the fnaf area with friends or, usually im in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
+please fandoms int ; pwned by 14, bleed, blocktales, phighting, give me your best, (literally like games in progress) and uhm... yeah
+
 dont be shy to tell me of what cosplays to make. im always open to make more cosplays. but please, dont make too many jokes of how many unfinished cosplays i have unless if we are VERY close. i do not have the motivation to finish them.
 
 ---
