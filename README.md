@@ -1,4 +1,4 @@
-## ; all i see is what im supposed to be.
+## ; all i see is what im supposed to be. i'm your life purpose.
 
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
 
