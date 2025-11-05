@@ -21,6 +21,7 @@ uh hi im not adding any images, get ready for a yapping session. elephant sfx
 
 - i make many typing mistakes and dont appreciate jokes or actually being corrected about it unless i ask or you are a close friend of mine !
 
+- i love animating, writing, music, and art! i animate in flipaclip, and i am both a traditional and digital artist! i play the piano and i write short stories in my free time ^_^
   
 heavily directed to pony town,
 - its time i specify since now im usually nonverbal, i kiss cosplays as compliments or praise! i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting!
