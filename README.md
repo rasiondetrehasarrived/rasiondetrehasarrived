@@ -30,7 +30,7 @@ heavily directed to pony town,
 
   *cosplay info …*
 
-; usually, i use forsaken, pwned by 14:00, dandys world, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. areas to find me are in the fnaf area with friends or, usually im in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
+; usually, i use forsaken, pwned by 14:00, phighting, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. the area to usually find me is in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
 please fandoms int ; guts and blackpowder, die of death, regretevator, dream game, sfw pokemon, defend the train, deltarune, pwned by 14, bleed, blocktales, phighting, give me your best, (literally like games in progress) and uhm... yeah
 
