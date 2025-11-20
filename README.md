@@ -1,3 +1,5 @@
+help me i didnt know my boyfriend is usign a major dopfer gnb profile too
+
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
@@ -32,9 +34,9 @@ heavily directed to pony town,
 
   *cosplay info …*
 
-; usually, i use forsaken, pwned by 14:00, phighting, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. the area to usually find me is in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
+; usually, i use die of death, arg related characters, fnf, forsaken, pwned by 14:00, phighting, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. the area to usually find me is in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
-please fandoms int ; guts and blackpowder, die of death, regretevator, dream game, sfw pokemon, defend the train, deltarune, pwned by 14, bleed, blocktales, phighting, give me your best, (literally like games in progress) and uhm... yeah
+please fandoms int ; guts and blackpowder, die of death, regretevator, dream game, sfw pokemon, defend the train, deltarune, pwned by 14, bleed, blocktales, phighting, give me your best, (literally like games in progress) and uhm... flavor rave fnf. yeah
 
 dont be shy to tell me of what cosplays to make. im always open to make more cosplays. but please, dont make too many jokes of how many unfinished cosplays i have unless if we are VERY close. i do not have the motivation to finish them.
 
@@ -48,4 +50,3 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 *1-800 hit my line,*
 ***1-800 theyre so handsome, theyre my hero!***
 
-I DIDNT FUCKING KNOW MY BOYFRIEND IS ALSO USING A MAJOR DOPFEPRPF PROFILE WHAT THE FUCK
