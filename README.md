@@ -47,3 +47,5 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 ---
 *1-800 hit my line,*
 ***1-800 theyre so handsome, theyre my hero!***
+
+I DIDNT FUCKING KNOW MY BOYFRIEND IS ALSO USING A MAJOR DOPFEPRPF PROFILE WHAT THE FUCK
