@@ -1,4 +1,3 @@
-help me i didnt know my boyfriend is usign a major dopfer gnb profile too
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
