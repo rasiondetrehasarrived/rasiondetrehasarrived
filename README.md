@@ -35,7 +35,7 @@ heavily directed to pony town,
 
 ; usually, i use die of death, arg related characters, fnf, forsaken, pwned by 14:00, phighting, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. the area to usually find me is in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
-please fandoms int ; guts and blackpowder, die of death, regretevator, dream game, sfw pokemon, defend the train, deltarune, pwned by 14, limbus company (the people who ACTUALLY play it..) bleed, blocktales, phighting, give me your best, (literally like games in progress) and uhm... flavor rave fnf. yeah
+please fandoms int ; endzone, law of talos, guts and blackpowder, die of death, regretevator, dream game, sfw pokemon, defend the train, deltarune, pwned by 14, limbus company (the people who ACTUALLY play it..) bleed, blocktales, phighting, give me your best, (literally like games in progress) and uhm... flavor rave fnf. yeah
 
 dont be shy to tell me of what cosplays to make. im always open to make more cosplays. but please, dont make too many jokes of how many unfinished cosplays i have unless if we are VERY close. i do not have the motivation to finish them.
 
