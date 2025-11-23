@@ -22,7 +22,7 @@ uh hi im not adding any images, get ready for a yapping session. elephant sfx
 
 - i make many typing mistakes and dont appreciate jokes or actually being corrected about it unless i ask or you are a close friend of mine !
 
-- yes i follow and unfollow people if i want because if i dont int with them i might unfollow but i dont hate them
+- yes i follow and unfollow people if i want because if i dont int with them i might unfollow but i dont hate them and i will never ever ever spam follow 
 
 - i love animating, writing, music, and art! i animate in flipaclip, and i am both a traditional and digital artist! i play the piano and i write short stories in my free time ^_^
   
