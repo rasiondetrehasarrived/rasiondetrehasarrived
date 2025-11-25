@@ -1,4 +1,4 @@
-sorry for the bright pfp
+sorry for the bright pfp, holy eyestrain
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
