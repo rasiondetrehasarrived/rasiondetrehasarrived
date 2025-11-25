@@ -1,3 +1,4 @@
+sorry for the bright pfp
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
