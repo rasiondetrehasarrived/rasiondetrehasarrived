@@ -6,8 +6,6 @@
 ---
 ![](https://imgur.com/a/WeP8OZb)
 
-![](<blockquote class="imgur-embed-pub" lang="en" data-id="a/WeP8OZb" data-context="false" ><a href="//imgur.com/a/WeP8OZb"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>)
-
 MY FUCKIGN IMAGE PLEASE
 ---
 
