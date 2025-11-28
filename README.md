@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=grey)
 
 ---
-![](https://ibb.co/9R713dM)
+![Gregor from limbus company yeah](https://ibb.co/9R713dM)
 
 MY FUCKIGN IMAGE PLEASE
 ---
