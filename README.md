@@ -5,7 +5,7 @@
 
 ---
 
-uh hi im not adding any images, get ready for a yapping session. elephant sfx
+![](https://imgur.com/a/WeP8OZb)
 
 **info!** 
 - im under 18 and very, very vauge about my age.
