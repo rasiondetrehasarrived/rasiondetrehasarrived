@@ -4,8 +4,10 @@
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
 
 ---
-
 ![](https://imgur.com/a/WeP8OZb)
+
+MY FUCKIGN IMAGE PLEASE
+---
 
 **info!** 
 - im under 18 and very, very vauge about my age.
