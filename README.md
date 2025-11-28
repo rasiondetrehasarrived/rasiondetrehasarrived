@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=grey)
 
 ---
-![Gregor from limbus company yeah](https://ibb.co/9R713dM)
+![Gregor standing in a subway train staring at a poster from the war he served in subtly guilty with subtitles the war was over at the bottom center](https://i.postimg.cc/PJ5hjpX5/IMG-3053.jpg)
 
 MY FUCKIGN IMAGE PLEASE
 ---
