@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
 
 ---
-![](https://imgur.com/a/WeP8OZb)
+![](https://ibb.co/9R713dM)
 
 MY FUCKIGN IMAGE PLEASE
 ---
