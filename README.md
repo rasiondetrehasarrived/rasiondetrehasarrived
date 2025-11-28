@@ -1,7 +1,7 @@
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
-![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=grey)
 
 ---
 ![](https://ibb.co/9R713dM)
