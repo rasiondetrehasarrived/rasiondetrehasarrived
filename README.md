@@ -32,7 +32,7 @@ heavily directed to pony town,
 
   ---
 
-  *cosplay info …*
+  cosplay info
 
 ; usually, i use die of death, arg related characters, fnf, forsaken, pwned by 14:00, phighting, dream game/frozen soul, blocktales, (its ALWAYS ROBLOX!!!!!!!! /j) and many other cosplays in pony town. the area to usually find me is in the crowded forsaken/roblox area below the cafe. i always avoid going to the library. if we are friends, i may be at island a lot.
 
