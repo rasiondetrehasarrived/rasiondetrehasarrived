@@ -47,8 +47,8 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 ; on edge for dni : objectums, dandys world fandom, tadc fandom, and those who are very (i mean VERY) dirty minded . all listed are meant to iwec and not get too close with me. i will specify if im fine with you. ^_^
 
 ---
-***"that woman, that isnt her! i dont ... 
- thats not the woman i know, damnit!"***
+***"i was doing just fine, ... 
+ until the son of god had saved me."***
 
 ![Gregor seemingly reluctantly having his bug-like hand pointing towards a woman that is backed up against the wall afraid as Gregor tries to pull away but his arm is too strong to hold back](https://i.postimg.cc/Hxp62wS3/IMG-3057.jpg)
 
