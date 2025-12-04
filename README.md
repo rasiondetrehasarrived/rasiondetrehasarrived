@@ -8,8 +8,6 @@
 
 ---
 
-my god im in a depressive episode this is so stupid 😂✌️✌️
-
 **info/semi-byi**
 - im under 18 and very, very vauge about my age.
 
@@ -19,7 +17,7 @@ my god im in a depressive episode this is so stupid 😂✌️✌️
   
 - i go idle and offtab a lot. this means i will have a delay in everything, and possibly not reply or move for long periods of time. please give me time to get back on the tab where we were talking.
 
-- extreme paranoia, anxiety, and trust issues.
+- extreme paranoia, anxiety, and trust issues. i have many episodes, maybe affecting how i act towards people
   
 - always ask for ships to int or to become friends. before that, interact with care. i may be sensitive to strangers.
 
