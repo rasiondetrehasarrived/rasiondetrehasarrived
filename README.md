@@ -8,6 +8,8 @@
 
 ---
 
+my god im in a depressive episode this is so stupid 😂✌️✌️
+
 **info/semi-byi**
 - im under 18 and very, very vauge about my age.
 
