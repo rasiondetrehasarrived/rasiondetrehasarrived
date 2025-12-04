@@ -16,6 +16,8 @@
 - usually semi-verbal if not with friends. possibly not verbal at all if im frustrated, and i do get frustrated VERY easily unless if i know who you are and how you'd act.
   
 - i go idle and offtab a lot. this means i will have a delay in everything, and possibly not reply or move for long periods of time. please give me time to get back on the tab where we were talking.
+
+- extreme paranoia, anxiety, and trust issues.
   
 - always ask for ships to int or to become friends. before that, interact with care. i may be sensitive to strangers.
 
