@@ -30,7 +30,17 @@
 - i love animating, writing, music, and art! i animate in flipaclip, and i am both a traditional and digital artist! i play the piano and i write short stories in my free time ^_^
   
 heavily directed to pony town,
-- its time i specify since now im usually nonverbal, i kiss cosplays as compliments or praise! i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting!
+- now im usually nonverbal, i kiss cosplays as compliments or praise. i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting.
+
+---
+
+extra
+
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN ONE NOT THE MYTH), past 007n7, and uhm.... uhm.......... devesto/artful idgas ........ and last but not least gregor from limbus company.... (i might have more characters i relate to, but not fully kin) lalalalalala
+
+- i type funny and i swear a lot
+
+  thats it
 
   ---
 
