@@ -21,7 +21,7 @@
   
 - always ask for ships to int or to become friends. before that, interact with care. i may be sensitive to strangers.
 
-- i may make inappropriate gestures or jokes. if you are not comfortable with that, please always tell me. i can stop those jokes or tone it down. i heavily apologize if i do make you uncomfortable with troll skins, as i dont mean to come off as weird (too much.) i use troll skins when talking to friends only.
+- i may make inappropriate gestures or jokes. if you are not comfortable with that, please always tell me. i can stop those jokes or tone it down. i heavily apologize if i do make you uncomfortable with troll skins, as i dont mean to come off as weird (too much.) please tell me if you find the skin offensive.
 
 - i make many typing mistakes and dont appreciate jokes or actually being corrected about it unless i ask or you are a close friend of mine !
 
