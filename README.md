@@ -66,3 +66,6 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
 ![Gregor seemingly reluctantly having his bug-like hand pointing towards a woman that is backed up against the wall afraid as Gregor tries to pull away but his arm is too strong to hold back](https://i.postimg.cc/Hxp62wS3/IMG-3057.jpg)
 
+
+
+hey. psst.about likw 100 views on my profile views thing is because of how many times ive edited resptories (idk how to spell it) so uhm yeah. its supposed to be like 500 right now
