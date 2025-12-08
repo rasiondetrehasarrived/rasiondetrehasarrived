@@ -40,6 +40,8 @@ extra
 
 - i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN ONE NOT THE MYTH), past 007n7, two time hahaha... and uhm.... uhm.......... devesto/artful idgas ........ and last but not least gregor from limbus company.... (i might have more characters i relate to, but not fully kin) lalalalalala
 
+- i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think
+
 - i type funny and i swear a lot
 
   thats it
