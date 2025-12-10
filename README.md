@@ -1,6 +1,8 @@
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
+how the FUCK do all these spam followers find me i havent been online at all
+
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=grey)
 
 ---
