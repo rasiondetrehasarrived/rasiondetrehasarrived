@@ -46,6 +46,8 @@ extra
 
 - i swear a lot
 
+- my visible user on pt is uhm .itzverbal!! or sum shit like that if ydk who i am
+  
   thats it
 
 ---
