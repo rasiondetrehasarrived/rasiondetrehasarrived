@@ -40,7 +40,9 @@ heavily directed to pony town,
 
 extra
 
-- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD ONE NOT THE MYTH), past 007n7, two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ........ thats it i think (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD ONE NOT THE MYTH), semi-past 007n7, semi-two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ........ thats it i think
+
+   (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
 - i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think.... booker from drawnout, mmmaybe jacob from cdarchives, and possibly cruel king from bt.... yeahhh
 
