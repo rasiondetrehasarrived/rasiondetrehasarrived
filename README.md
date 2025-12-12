@@ -21,7 +21,7 @@ how the FUCK do all these spam followers find me i havent been online at all
 
 - iwc i dunno might be sensitive
 
-- extreme paranoia, anxiety, and trust issues. i have many episodes, maybe affecting how i act towards people
+- extreme paranoia, anxiety, and trust issues. i have many episodes, maybe affecting how i act towards people. whys this? most likely have ppd. its bad.
   
 - always ask for ships to int or to become friends. before that, interact with care. i may be sensitive to strangers.
 
