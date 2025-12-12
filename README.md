@@ -40,7 +40,7 @@ heavily directed to pony town,
 
 extra
 
-- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD ONE NOT THE MYTH), semi-past 007n7, semi-two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas and semi-john doe from like any game ........ thats it i think (it isnt i have aceofspade shifts)
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH), semi-past 007n7, semi-two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas and semi-john doe from like any game ........ thats it i think (it isnt i have aceofspade shifts)
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
