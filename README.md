@@ -44,7 +44,7 @@ extra
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
-- i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think.... booker from drawnout, mmmaybe jacob from cdarchives, and possibly cruel king from bt.... yeahhh
+- i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think.... booker from drawnout, mmmaybe jacob from cdarchives, and possibly cruel king/simon from bt.... yeahhh
 
 - i swear a lot
 
