@@ -40,11 +40,11 @@ heavily directed to pony town,
 
 extra
 
-- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH), semi-past 007n7, semi-two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas and semi-john doe from like any game ........ thats it i think (it isnt i have aceofspade shifts)
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH), semi-past 007n7, semi-two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas and semi-john doe from like any game and like.. semi-loveshot (oh my god bru sybau) ........ thats it i think (it isnt i have aceofspade shifts)
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
-- i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think.... booker from drawnout, mmmaybe jacob from cdarchives, and possibly cruel king/simon from bt.... yeahhh
+- i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think.... booker from drawnout, mmmaybe jacob from cdarchives, and possibly cruel king/simon from bt.... and like ringmaster from forsakn yeahhh
 
 - i swear a lot
 
