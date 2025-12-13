@@ -40,7 +40,9 @@ heavily directed to pony town,
 
 extra
 
-- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH), semi-past 007n7, semi-two time hahaha... and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas and semi-john doe from like any game and like.. semi-loveshot (oh my god bru sybau) ........ thats it i think (it isnt i have aceofspade shifts)
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ...... thats it i think (it isnt i have aceofspade shifts)
+
+- semi kin (shifts, stims) : two time, past 007n7, john doe any variation, loveshot from dod and many more
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
@@ -80,4 +82,4 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
 
 
-hey. psst.about likw 100 views on my profile views thing is because of how many times ive edited resptories (idk how to spell it) so uhm yeah. its supposed to be like 500 right now
+hey. psst.about likw 100 views on my profile views thing is because of how many times ive edited resptories (idk how to spell it) so uhm yeah. its supposed to be like 600 right now
