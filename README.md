@@ -51,6 +51,8 @@ extra
 - my visible user on pt is uhm .itzverbal!! or sum shit like that if ydk who i am
 
 - i am a real life cosplayer and i have cosplays of two time, that smiley thing from smiley archives/demise skin for noli, and tixful... yeha...
+
+- i looooove badware yeah my comf character
   
   thats it
 
