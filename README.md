@@ -42,7 +42,7 @@ extra
 
 - i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ...... thats it i think (it isnt i have aceofspade shifts)
 
-- semi kin (shifts, stims) : two time, past 007n7, john doe any variation, loveshot from dod and many more
+- semi kin (shifts, stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, and many more
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
