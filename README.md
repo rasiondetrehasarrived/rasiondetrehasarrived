@@ -11,7 +11,7 @@ how the FUCK do all these spam followers find me i havent been online at all
 ---
 
 **info/semi-byi**
-- im under 18 and very, very vauge about my age.
+- im under 18 and very, very not vague about my age.
 
 - i have a boyfriwnd,, girlfriend,,, idk what to call them...
 
