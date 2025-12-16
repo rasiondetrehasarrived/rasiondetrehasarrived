@@ -54,7 +54,7 @@ extra
 
 - i am a real life cosplayer and i have cosplays of two time, that smiley thing from smiley archives/demise skin for noli, and tixful... yeha...
 
-- i looooove badware yeah my comf character
+- i looooove badware and agent jajananajjsjsisj from crob yeah my comf characters
   
   thats it
 
