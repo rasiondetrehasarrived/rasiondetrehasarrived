@@ -44,7 +44,7 @@ extra
 
 - i could see myself as golden cheese cookie (modern,) ... i love her so much, we both escape reality and have ptsd and and like hog stuff and like... like.......... much more stuff, shrines n shi, i love gcc
 
-- semi kin (stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, and many more
+- semi kin (stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, paranoy, and many more
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
