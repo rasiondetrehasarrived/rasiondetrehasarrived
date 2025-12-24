@@ -84,4 +84,4 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
 
 
-hey. psst.about likw 150views on my profile views thing is because of how many times ive edited resptories (idk how to spell it) so uhm yeah. its supposed to be liken 650 right now
+hey. psst.about likw 150views on my profile views thing is because of how many times ive edited resptories (idk how to spell it) so uhm yeah. 
