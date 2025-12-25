@@ -32,6 +32,8 @@ how the FUCK do all these spam followers find me i havent been online at all
 - yes i follow and unfollow people if i want because if i dont int with them i might unfollow but i dont hate them and i will never ever ever spam follow 
 
 - i love animating, writing, music, and art! i animate in flipaclip, and i am both a traditional and digital artist! i play the piano and i write short stories in my free time ^_^
+
+- please ....a....a lelsse.... DONT CALL ME SHE OR HER!!!!
   
 heavily directed to pony town,
 - now im usually nonverbal, i kiss cosplays as compliments or praise. i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting.
