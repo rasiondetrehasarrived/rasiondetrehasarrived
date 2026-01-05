@@ -60,7 +60,7 @@ extra
 
 - i looooove badware and agent jjajang from crob yeah my comf characters
 
-- i simp for dyle im sorry but hes so...
+- i simp for dyle im sorry but hes so... doubles dni , im his 0# fan trust me dud
 
   thats it
 
@@ -76,7 +76,7 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 
 ---
 
-  - dni is people over 18, exaggerating proshippers/darkshippers and yumeshippers (like when they are so obvious and romanticize like everything), MAPs, roleplayers, and basic dni. (woah, past discord servers that know me? dni.)
+  - dni is people over 18, exaggerating proshippers/darkshippers (like when they are so obvious and romanticize like everything), MAPs, roleplayers, and basic dni. (woah, past discord servers that know me? dni.)
 
 ; on edge for dni : objectums, tadc fandom, and those who are very (i mean VERY) dirty minded . all listed are meant to iwec and not get too close with me. i will specify if im fine with you. ^_^
 
