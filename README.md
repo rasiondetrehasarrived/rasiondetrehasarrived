@@ -52,6 +52,8 @@ extra
 
 - i really relate but not fully kin mafioso from dream game/frozen soul, sean from seildirectory, and like.... uhm...... i cant think.... booker from drawnout, mmmaybe jacob from cdarchives, and possibly cruel king/simon from bt.... and like ringmaster from forsakn then tenna from dektarune.. yeahhh
 
+- heyy pssst double heavy kin dni ...
+
 - i swear a lot
 
 - my visible user on pt is uhm .itzverbal!! or sum shit like that if ydk who i am
