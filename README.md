@@ -1,6 +1,8 @@
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
+ON HIATUS FROM PONY TOWN , WONT BE ONLINE UNTIL MARCH MOST LIKELY . CONTACT ME THROUGH OTHER FORMATS LIKE ROBLOX OR DISCORD !! 
+
 how the FUCK do all these spam followers find me i havent been online at all
 
 ![](https://komarev.com/ghpvc/?username=rasiondetrehasarrived&color=grey)
