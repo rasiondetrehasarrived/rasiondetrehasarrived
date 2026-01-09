@@ -46,9 +46,9 @@ heavily directed to pony town,
 
 extra
 
-- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ......aND MANNEQUIN MARK!!!!!! thats it i think (it isnt i have aceofspade shifts)
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ......aND MANNEQUIN MARK!!!!!!
 
-- i could see myself as golden cheese cookie (modern,) ... i love her so much, we both escape reality and have ptsd and and like hog stuff and like... like.......... much more stuff, shrines n shi, i love gcc
+- i could see myself as golden cheese cookie (modern,)
 
 - semi kin (stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, paranoy, and many more
 
