@@ -36,6 +36,8 @@ how the FUCK do all these spam followers find me i havent been online at all
 - i love animating, writing, music, and art! i animate in flipaclip, and i am both a traditional and digital artist! i play the piano and i write short stories in my free time ^_^
 
 - please ....a....a lelsse.... DONT CALL ME SHE OR HER!!!!
+
+- hey, have i said this already ? i dont remember . if theres something problemstic on my pfp and i dont know pls lmk through ata :(
   
 heavily directed to pony town,
 - now im usually nonverbal, i kiss cosplays as compliments or praise. i dont mean to come off as weird, i just wanna tell you your cosplay/oc is pretty without chatting.
@@ -85,8 +87,6 @@ dont be shy to tell me of what cosplays to make. im always open to make more cos
 ; on edge for dni : objectums, tadc fandom, and those who are very (i mean VERY) dirty minded . all listed are meant to iwec and not get too close with me. i will specify if im fine with you. ^_^
 
 ---
-***"i was doing just fine, ... 
- until the son of god had saved me."***
 
 ![Gregor seemingly reluctantly having his bug-like hand pointing towards a woman that is backed up against the wall afraid as Gregor tries to pull away but his arm is too strong to hold back](https://i.postimg.cc/Hxp62wS3/IMG-3057.jpg)
 
