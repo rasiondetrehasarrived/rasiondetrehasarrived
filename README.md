@@ -50,7 +50,7 @@ extra
 
 - i could see myself as golden cheese cookie (modern,)
 
-- semi kin (stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, paranoy, and many more
+- semi kin ( ? ) (stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, paranoy, and many more
 
    (i might have more characters i relate to, but not fully kin or maybe i have pounds of kins.) lalalalalala
 
