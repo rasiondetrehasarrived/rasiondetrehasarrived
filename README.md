@@ -1,7 +1,7 @@
 
 ## ; all i see is what im supposed to be. i'm your life purpose.
 
-* important : im on hiatus from pony town , i wont be back until march or so . contact me through discord or roblox , im not checking anything else .
+* important : im on hiatus from pony town , i wont be back until march or so . contact me through discord, ata, strawpage or roblox , im not checking anything else .
 
 how the FUCK do all these spam followers find me i havent been online at all
 
