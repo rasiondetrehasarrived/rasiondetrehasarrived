@@ -44,7 +44,7 @@ heavily directed to pony town,
 
 extra
 
-- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ......aND MANNEQUIN MARK!!!!!! (and looey)
+- i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ......aND MANNEQUIN MARK!!!!!! (and looey.... and maybe smc.)
 
 - i could see myself as sea fairy cookie, especially as rippling moonlight sea fairy . double kin can int haha
 
