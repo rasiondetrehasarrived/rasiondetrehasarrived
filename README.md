@@ -46,7 +46,7 @@ extra
 
 - i heavily kin jim from jc, hatred from bt (or builderman...), noli (the FORSAKEN/HELLO JD/TERMN. PROTO ONE, NOT THE MYTH),. and uhm.... uhm.......... devesto/artful/tixful any artful variation idgas ......aND MANNEQUIN MARK!!!!!! (and looey.... and maybe smc.)
 
-- i could see myself as sea fairy cookie, especially as rippling moonlight sea fairy . double kin can int haha
+- i could see myself as sea fairy cookie, especially as rippling moonlight sea fairy . double sf kin can int haha
 
 - semi kin ( ? ) (stims) : two time, past 007n7, john doe any variation, loveshot from dod, killer kyle from the mskedkill, paranoy, and many more
 
