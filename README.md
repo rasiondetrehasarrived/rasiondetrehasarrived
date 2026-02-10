@@ -21,7 +21,8 @@ how the FUCK do all these spam followers find me i havent been online at all
   
 - i go idle and offtab a lot. this means i will have a delay in everything, and possibly not reply or move for long periods of time. please give me time to get back on the tab where we were talking.
 
-- extreme paranoia, anxiety, and trust issues. i have many episodes, maybe affecting how i act towards people. whys this? most likely have ppd and/or dpd. its bad. im also a little sadistic umm
+- extreme paranoia, anxiety, and trust issues. i have many episodes, maybe affecting how i act towards people. 
+- 
   
 - always ask for ships to int or to become friends. before that, interact with care. i may be sensitive to strangers.
 
